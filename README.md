@@ -1,11 +1,6 @@
 ## About me
 
 
-**campersonguy/campersonguy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+"Imagine you're splitting 2 cookies between half a person. They'd get 4 cookies" - me
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on GRINDING CPT AHAHHAHAHAHAHA
-- 🌱 I’m currently learning computingcomputingcomputingcomputingcomputingcomputingcomputing
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: yes
+STRAWS HAVE THREE HOLES AND I CAN PROVE IT
